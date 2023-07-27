@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NuclearCannon
-- 👀 I’m interested in ACG,cross-dresser
+- 👀 I’m interested in ACG, AI
 - 🌱 I’m currently learning in HUST computer science
 
 <!---
